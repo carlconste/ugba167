@@ -1,1 +1,1 @@
-# ugba167
+# UGBA 167: Marketing Analytics
